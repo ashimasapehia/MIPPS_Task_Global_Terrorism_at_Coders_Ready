@@ -23,4 +23,4 @@ Also, 4 of the top 5 countries with the most terrorist attacks (Iraq, Pakistan, 
 Strengthening security across borders and by taking measures on increased immigration in HOT ZONES will also help in controlling Global Terrorism.
 Even though attcks are decresing, number are still high that's why this topic should address globally.
 
-Video:
+Video:https://drive.google.com/file/d/1Uw86c4cyjDKqImesMs-E1W9mXy1_YEPI/view?usp=share_link
